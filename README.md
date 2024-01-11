@@ -1,0 +1,9 @@
+NAMA  : RYANTAMA
+
+
+
+KELAS : TI.21.A.3
+
+
+NIM  :312110619
+
